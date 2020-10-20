@@ -76,6 +76,8 @@
 
 #### Netflix《三体》
 
+[国际畅销作品《三体》将被改编为奈飞（Netflix）英文 原创剧集](https://about.netflix.com/zh_cn/news/the-three-body-problem-netflix-original-series)
+
 进度：尚未上线
 
 ### 电影
